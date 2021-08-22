@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @audreyrobi
+- 👀 I’m interested in product design, martech, ux/ui, and cartography
